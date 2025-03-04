@@ -3,4 +3,4 @@
 **другое любое устройство в схеме**
 
 
-![image](https://github.com/user-attachments/assets/c7f70909-d457-4169-b783-5ce88c3c33b8)
+![Screenshot_2025_14-45-25](https://github.com/user-attachments/assets/c2b23d5f-6a10-4e78-9528-d729fc566b86)
